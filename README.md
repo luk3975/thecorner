@@ -1,5 +1,3 @@
 # thecorner
 
-Lukes Corner of Chaos 2.0!!!! Lets gooooooo
-Definitely not being made to procrastinate working on LukeTube Update 8!
-
+Nah jk im too lazy to make lukes corner of chaos 2.0 this is gonna be the Luke Minigames webpage!
